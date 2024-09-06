@@ -1,9 +1,9 @@
  ## Oii, eu sou a Mari
  
-• No momento estou estudando na Alura 
+⁠☆ No momento estou estudando na Alura 
 
-• Estou estudando sobre javascript 
+⁠☆ Estou estudando sobre javascript 
 
-• sou estudante do ensino médio 
+⁠☆ sou estudante do ensino médio 
 
-![](https://tenor.com/qGmOAFqorxO.gif)
+⁠☆ **Você pode me contatar por mariana0liveira280720@gmail.com**
